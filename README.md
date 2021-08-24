@@ -1,1 +1,1 @@
-# projeto deteive blue
+# projeto detetive blue
